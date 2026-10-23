@@ -11,7 +11,6 @@
 
 - 📫 How to reach me **samuele.romagnoli@gmail.com**
 
-- ⚡ Fun fact **According to the laws of physics, a bumblebee cannot fly; but the bumblebee doesn't know, so it flies anyway.**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
